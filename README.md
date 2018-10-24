@@ -1,4 +1,4 @@
 # GK
-Gayathri dvei 
+Gayathri devi 
 CSE 
 3RD YEAR
